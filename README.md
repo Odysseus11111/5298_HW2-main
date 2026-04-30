@@ -1,1 +1,2 @@
-# 5298_HW2-main
+# 5298_HW2
+Model Upgrade &amp; Equity Research Enhancement
